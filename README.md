@@ -1,2 +1,0 @@
-# Jawaker-Tarneeb
-لعبه شدة 
